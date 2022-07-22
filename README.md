@@ -1,0 +1,2 @@
+# havadurumunagoreetkinlikonerme
+havadurumunagoreetkinlik önerme
